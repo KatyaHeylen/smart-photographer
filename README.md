@@ -1,1 +1,1 @@
-# smart-photographer
+# katyaheylen-photographer
